@@ -1,0 +1,1 @@
+# yuz_tespiti_yapayzeka_odevi
